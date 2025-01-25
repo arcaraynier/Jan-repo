@@ -21,3 +21,5 @@ Jan 17, may interview ko sa algoseek, indi gid malikawan nga hays, wla mani nada
 Jan 20, nag-abot si nong raztin
 
 Jan 21, bago bugtaw naga update sa github 7:02 am
+
+Jan 25, 2025, its 8:40 am trying to plan the future ahead.
