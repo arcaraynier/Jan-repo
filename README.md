@@ -20,4 +20,6 @@ Jan 17, may interview ko sa algoseek, indi gid malikawan nga hays, wla mani nada
 
 Jan 20, nag-abot si nong raztin
 
+Jan 30, finishing course in udemy
+
 Jan 21, bago bugtaw naga update sa github 7:02 am
