@@ -23,3 +23,5 @@ Jan 20, nag-abot si nong raztin
 Jan 30, finishing course in udemy
 
 Jan 21, bago bugtaw naga update sa github 7:02 am
+
+Feb 2, Finding my purpose and my passion
