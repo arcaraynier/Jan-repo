@@ -29,3 +29,5 @@ Feb 2, Finding my purpose and my passion
 Feb 3, Interview and kabado.
 
 Feb 4, Eto feeling ko failed interview ko kahapon. unmotivated yet just keep forward.
+
+Feb 5, Just another day to keep moving forward
