@@ -27,3 +27,5 @@ Jan 21, bago bugtaw naga update sa github 7:02 am
 Feb 2, Finding my purpose and my passion
 
 Feb 3, Interview and kabado.
+
+Feb 4, Eto feeling ko failed interview ko kahapon. unmotivated yet just keep forward.
