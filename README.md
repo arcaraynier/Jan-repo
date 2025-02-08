@@ -31,3 +31,7 @@ Feb 3, Interview and kabado.
 Feb 4, Eto feeling ko failed interview ko kahapon. unmotivated yet just keep forward.
 
 Feb 5, Just another day to keep moving forward
+
+Feb 7, 2025. forgot to update
+
+Feb 8, 2025. failed interview, pero naka final interview pako ah, go go lang. waited for almost 10 hours.
