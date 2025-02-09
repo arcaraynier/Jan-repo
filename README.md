@@ -21,3 +21,5 @@ Jan 17, may interview ko sa algoseek, indi gid malikawan nga hays, wla mani nada
 Jan 20, nag-abot si nong raztin
 
 Jan 21, bago bugtaw naga update sa github 7:02 am
+
+Feb, 9, 2025 - Here motivated to become a programmer or web developer. But I become despondent in Feb 7, due to a failed final interview, but keep move forward self.
