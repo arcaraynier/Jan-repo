@@ -35,3 +35,5 @@ Feb 5, Just another day to keep moving forward
 Feb 7, 2025. forgot to update
 
 Feb 8, 2025. failed interview, pero naka final interview pako ah, go go lang. waited for almost 10 hours.
+
+Feb 9, 2025. Keep moving forward you will get there! until you reach your success to become a web developer or data scientist
