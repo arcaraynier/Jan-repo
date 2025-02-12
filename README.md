@@ -41,3 +41,5 @@ Feb 9, 2025. Keep moving forward you will get there! until you reach your succes
 Feb 10, 2025. Keep moving Forward.
 
 Feb 11, 2025. Keep moving forward until you become the dream version of yourself.
+
+Feb 12, 2025. Tiring yet memorable. we had jobhunt, me jesha and john.
