@@ -43,3 +43,10 @@ Feb 10, 2025. Keep moving Forward.
 Feb 11, 2025. Keep moving forward until you become the dream version of yourself.
 
 Feb 12, 2025. Tiring yet memorable. we had jobhunt, me jesha and john.
+
+Feb 13, 2025, Jesha,
+
+Feb 14, 2025, pass requirements woke up 6 am pass requirements from 8 am wm for logistic clerk. many requirements
+
+
+Feb 15, 2025, Saturday,
