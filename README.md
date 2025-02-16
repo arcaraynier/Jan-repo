@@ -50,3 +50,5 @@ Feb 14, 2025, pass requirements woke up 6 am pass requirements from 8 am wm for 
 
 
 Feb 15, 2025, Saturday,
+
+Feb 16, 2025 - Wash Day.Calm my mind
