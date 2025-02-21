@@ -29,3 +29,5 @@ Feb 10, 2025- You better stay productive self.
 Feb 11, 2025 - Better days are coming.
 
 Feb 21, 2025 - One step at a time. 5:35 am
+
+Feb 22, 2025 - Yesterday I had an interview at 10:30 am, then did an assessment finish around 3:00 then troubleshoot a BITLOCKER of cousins laptop, then interview around 4:00 by Ruel then interview again my concentrix IT head team w/c from bacolod. I was hype and energize.
