@@ -67,3 +67,5 @@ Feb 23, 2025 - [Sunday] 12:01 pm
 Feb 24, 2025 - Monday, 5:25 am
 Feb 25, [ Tuesday ] 5:44 am
 Feb 26m 2025 [7:57am]
+
+March 14, [9:27am] time is so fast  i do have job now, and im overwhelm. 
