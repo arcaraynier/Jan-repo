@@ -9,7 +9,7 @@ dsds
 
 
 geez to me
-So do it!..
+So do it!.. even it's scary 
 
 Start
 
