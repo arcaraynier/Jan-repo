@@ -13,7 +13,7 @@ So do it!.. even it's scary
 
 Start
 
-Jan 12, 2025 boracay. how's been?
+Jan 12, 2025 boracay. how's been? 
 
 Jan 16, 2025 birthday nang mia
 
@@ -71,3 +71,4 @@ Feb 26m 2025 [7:57am]
 March 14, [9:27am] time is so fast  i do have job now, and im overwhelm. 
 March 15, 2025 [11:12 pm] overwhelm and self doubt for the future.
 March 17, 2025 4:19 am scared and overwhelming, I need to overcome this
+March 18, 2025 - buwas na birthday ni nanay, duty ko subong 5:06 am. 6:00 - 3 :00 shift ko new subcon.
