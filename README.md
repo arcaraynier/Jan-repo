@@ -77,3 +77,6 @@ March 18, 2025 - Before birthday ni nanay, 6 am akon duty nag in ko 5:40am then 
 March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wishing you good health!. its 3:30 am here, may duty pako 6 am karon. I hope indi ko mag overtime. hay buhay.
 
 March 20 /, 2025,  naburaw ko 5:51 koam ko nabugtaw, mayo lg gin bugtaw ko ni tatay kag dason nalate ko 4:58
+
+March 30, - day off, nmanang faith, nanay manang jejen, and renren, ari di sa babaw
+Simba kamo sa jaro cathedral then nag grocery sa supermart
