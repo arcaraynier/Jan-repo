@@ -15,7 +15,7 @@ Starthbdddh
 
 Jan 12, 2025 boracay. how's been? 
 
-Jan 16, 2025 birthday nang mia
+Jan 16, 2025 birthday nang mia.
 
 Jan 17, may interview ko sa algoseek, indi gid malikawan nga hays, wla mani nadayon haha
 
