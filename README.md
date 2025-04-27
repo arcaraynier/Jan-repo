@@ -16,7 +16,7 @@ Jan 12, 2025 boracay
 
 Jan 16, 2025 birthday nang mia, enjoyed
 
-Jan 17, may interview ko sa algoseek, indi gid malikawan nga hays, wla mani nadayon haha
+Jan 17, may interview ko sa algoseek, indi gid malikawan nga hays, wla mani nadayon haha.
 
 Jan 20, nag-abot si nong raztin
 
