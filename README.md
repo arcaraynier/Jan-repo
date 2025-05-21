@@ -5,7 +5,7 @@ repo
 January 4, 2025
 e
 New year, new habitsdsd...
-dsdseess.
+dsdseess...
 ..
 
 geez to me.
@@ -83,3 +83,5 @@ Simba kamo sa jaro cathedral then nag grocery sa supermart
 March 31, 2025 - It's 5:05 am here
 
 April 8, 2025 - Tuesday, duty at 6, duty nanaman, gin help ko si kekel pro nag answer si manang faith kay sleepy ko kag tired about returning asset of an agent 3 accounts tas may damage pa headset niya kag ang isa..
+
+May 22, 2025 - Later this eveing my work nanaman kooo. 
