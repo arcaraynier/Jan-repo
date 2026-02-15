@@ -10,7 +10,7 @@ New year, new habits
 You can doittt!
 So do it! ee
 .
-Start
+Start..
 ..
 Jan 12, 2025 boracay
 
