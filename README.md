@@ -12,7 +12,7 @@ So do it! ee
 ...
 Start..
 ..
-Jan 12, 2025 boracay..
+Jan 12, 2025 boracay....
 
 Jan 16, 2025 birthday nang mia, enjoyed
 
