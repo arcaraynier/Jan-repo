@@ -13,7 +13,7 @@ So do it! ee
 Start..
 ..
 Jan 12, 2025 boracay......
-
+..
 Jan 16, 2025 birthday nang mia, enjoyed..
 
 Jan 17, may interview ko sa algoseek, indi gid malikawan nga hays, wla mani nadayon hah..a.
